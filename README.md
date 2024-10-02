@@ -8,3 +8,9 @@
 
 
 ## Me puedes contactar por mi Gmail bertolt.canaria@uptc.edu.co o por mi Numero de celular 3217402963
+
+
+
+
+## Skills 
+Se Usar El Pseudo código en Pseint y se resolver problemas matematicos
